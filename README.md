@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on hackathons, company projects
 - 📫 How to reach me Linkdin: www.linkedin.com/in/sebastian-ng-22b76a2b2 email: sngofficial100@gmail.com OR 2400871@sit.singaporetech.edu.sg
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love to inline skate and watch cartoons
+- ⚡ Fun fact: I love to inline skate and watch cartoons and eat sushi
 
 <!---
 Sebastianng100/Sebastianng100 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
